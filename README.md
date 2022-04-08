@@ -8,8 +8,6 @@
 
 + 업로드 과정에서 화질이 안좋아졌는데 노트북 화면 그대로 녹화하는 방법도 찾아보겠습니다 ㅠㅠ
 
-
-
 - 편집본
 https://drive.google.com/file/d/12NrUPwe3lGlOT63GMgeHJqTJoV2PbHVW/view?usp=sharing
 
